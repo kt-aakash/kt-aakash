@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with **leads to intresting projects**
 - 💬 Ask me about anything related to Technology and Geo-Politics
 - 📫 How to reach me: twitter:[@kt_aakash](https://twitter.com/kt_aakash)
-- ⚡ Fun fact: I don't get the TV Series - [F.r.i.e.n.d.s](https://www.google.com/search?client=ubuntu&channel=fs&q=friends&ie=utf-8&oe=utf-8) :sweat_smile:
+- ⚡ Fun fact: I truly enjoyed the TV Series - Silicon Valley :sweat_smile:
 
